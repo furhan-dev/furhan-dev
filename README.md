@@ -5,4 +5,4 @@
 - 💬 Ask me about my pickleball obsession
 - 📫 How to reach me: contact@furhan.dev
 - 😄 Pronouns: he/him/his
-- ⚡ Fun fact: Born in Dubai, ethnically Pakistani, dual American & Canadian citizen
+- ⚡ Fun fact: Born in Dubai 🇦🇪, ethnically Pakistani 🇵🇰, dual American 🇺🇸 & Canadian 🇨🇦 citizen
